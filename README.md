@@ -1,6 +1,6 @@
 ___
 DISCLAIMER
-I would like to avoid posting personal photos and info on web except my social networks. Thanks for undestanding.
+I would like to avoid posting personal photos and info on web except my social networks. Thanks for undestanding.  
 ___
 
 # Welcome to my sample page
