@@ -16,7 +16,7 @@ Mr. Mohamed Alabbar, Chairman of Emaar Properties, said:
 > Burj Khalifa goes beyond its imposing physical specifications. In Burj Khalifa, we see the triumph of Dubai's vision of attaining the seemingly impossible and setting new benchmarks. It is a source of inspiration for every one of us at Emaar[^1]. The project is a declaration of the Emirate's capabilities and of the resolve of its leaders and people to work hand-in-hand on truly awe-inspiring projects. 
 
 I have taken this picture on Oct, 3 2022 while being on my honeymoon.  
-Not only this building fascinates when looking up at it from ground, but the view that opens from floor 140 is breathtaking as well. Just imagine: over <mark>**828**</mark> meters high! 
+Not only this building fascinates when looking up at it from ground, but the view that opens from floor 140 is breathtaking as well. Just imagine: over <mark> 828 </mark> meters high! 
 I was also excited to travel on fastest elevator in the world, the feeling might be compared with the one you experince when on a plane and it takes off.  
 
 - [x] Kiss on last floor of world's highest building  
